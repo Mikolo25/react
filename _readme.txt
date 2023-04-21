@@ -16,10 +16,4 @@ Check your e-mail "Spam" or "Junk" folder if you don't get answer more than 6 ho
 
 
 To get this software you need write on our e-mail:
-support@freshmail.top
-
-Reserve e-mail address to contact us:
-datarestorehelp@airmail.cc
-
-Your personal ID:
-0693JOsieTbmbQHrRetavI0S0XzM0bbAhK36Z0tk1v4663NLB
+support@freshma
